@@ -1,4 +1,4 @@
-Hello to all, my name is Cristiano, future software engineer. 👋
+Always ready to learn 📖, future software engineer 👨🏿‍💻, I like reading books 📚, in my opinion it is the best source of knowledge, videos also help 📽️, to be an excellent programmer you must always study, and enjoy solving problems haha.
 
 <<< Tecnologies that I work >>>
 
