@@ -16,4 +16,10 @@ Always ready to learn 📖, future software engineer 👨🏿‍💻, I like rea
 Programming Logic and Algorithms 🔠
 
 
+<<< Languages that I speak >>>
+
+![img](https://drive.google.com/file/d/1UtVv_rLiL_7dShdvAy0ZrZp4xkroZww6/view?usp=drive_link)   ![img](https://drive.google.com/file/d/1-5hYl4Ui69xDccl07xQHviYvcFc-TGVV/view)    ![img](https://drive.google.com/file/d/133EsoekEfqiUcPuI6trV5Hi3rkje0DeA/view)
+
+
+
 
